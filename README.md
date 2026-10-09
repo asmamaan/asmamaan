@@ -68,8 +68,8 @@
 
 ## 🌍 Connect With Me
 
-- 💼 **LinkedIn:** your-link-here
-- 📧 **Email:** your-email-here
+- 💼 **LinkedIn:** www.linkedin.com/in/asma-afzal-005a41363
+- 📧 **Email:** asmaafzal609@gmail.com
 - 📱 **Portfolio:** coming soon 🚧
 
 ---
